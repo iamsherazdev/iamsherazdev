@@ -1,5 +1,5 @@
 # 💫 About Me:
-Helping Startups, Agencies & Small Businesses Fix WordPress, Funnels, CRM & Ads | GoHighLevel & Make Expert | Shopify Support | Web Strategist
+Helping Startups, Agencies & Small Businesses Fix WordPress, Funnels, CRM & Ads | GoHighLevel & Make Expert | Shopify Support | Web Strategist through my robust Code and Visualising skills.
 
 
 ## 🌐 Socials:
